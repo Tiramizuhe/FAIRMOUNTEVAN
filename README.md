@@ -1,2 +1,1 @@
-# FAIRMOUNTEVAN
-This repository is for my friend .. # DONT STEAL
+this repository is on work for my friend
